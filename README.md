@@ -5,7 +5,7 @@
 
 ### How to reach me
 
-* [Instagram](www.instagram.com/dr.retr0_o)
+* [Instagram](https://instagram.com/dr.retr0_o)
 * [Twitter](https://twitter.com/Ebinu6)
 * [Telegram](https://t.me/EXE0EXE)
 
